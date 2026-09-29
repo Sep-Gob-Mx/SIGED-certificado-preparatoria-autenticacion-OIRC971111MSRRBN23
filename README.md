@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-OIRC971111MSRRBN23
+OIRC971111MSRRBN23
